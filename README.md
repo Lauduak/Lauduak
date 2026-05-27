@@ -21,7 +21,6 @@ Once i'm done uploading my projects to this new account, feel free to explore th
 You can reach me at:
 
 - Email: lauraoswald56@gmail.com 📧
-- X(Formerly known as Twitter): @lauduak 🐦
 - LinkedIn: https://www.linkedin.com/in/laura-oswald-b6b393242/ 💼
 
 I'm always happy to chat about tech, collaborate on projects, or discuss any other topics you're interested in. 🤝
